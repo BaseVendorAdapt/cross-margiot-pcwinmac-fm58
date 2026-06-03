@@ -1,4 +1,4 @@
-# 
+# رسمي cross-margin trading bot سكريبتات لـ Mac OS | مخصص cross-margin trading bot سكريبتات لـ PC Windows. مع تحكيم إحصائي و زراعة العائد — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
